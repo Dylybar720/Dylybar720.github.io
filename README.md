@@ -1,2 +1,2 @@
-# Dylybar720.github.io
-Website for CMPUT250
+# Dylan Campbell
+Dylan F. Campbell (He/Him) is a Musician, Composer, and Producer currently residing in Edmonton. Holding a BMus in composition from MacEwan University, Dylan bases his practice around sonic exploration, experimentation, and creative play. As the guitarist of activist band First Gen, Dylan works to help champion the voices of first-generation immigrants and create more diverse spaces within the Edmonton music community. Dylan supports young musicians in his work as part of the student services team at Sarah McLachlan School of Music.
